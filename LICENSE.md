@@ -1,4 +1,4 @@
-#  
+#  ultimate Notion for macOS Macro | focus mode + quick search offers the most advanced Notion for macOS macro, with focus mode and quick search. Ideal for professionals.
 
 
 
